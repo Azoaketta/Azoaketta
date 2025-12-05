@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Azoaketta
 - 👀 I’m interested in getting good at coding
-- 🌱 I’m into  day trading and sode engineering
+- 🌱 I’m into  day trading and code engineering
 - 🧠 I’m looking to collaborate on anything thats productive
 - 📫 How to reach me whatsapp 256782230723
 
